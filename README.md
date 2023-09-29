@@ -36,8 +36,6 @@ https://www.microsoft.com/en-us/industry/blog/financial-services/2023/05/04/the-
 
 https://aws.amazon.com/pt/blogs/industries/the-next-frontier-generative-ai-for-financial-services/
 
-https://degreed.com/videos/ia-generativa-no-banco-ita?d=37550588&inputtype=video&mobile=1
-
 https://youtu.be/L_Guz73e6fw?si=jshoip1C1M8BErZZ
 
 
