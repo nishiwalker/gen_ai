@@ -1,4 +1,4 @@
-https://www.weforum.org/agenda/2023/02/generative-ai-explain-algorithms-work/)https://www.weforum.org/agenda/2023/02/generative-ai-explain-algorithms-work/
+https://www.weforum.org/agenda/2023/02/generative-ai-explain-algorithms-work/
 
 https://youtu.be/hfIUstzHs9A?si=Jha3GlGNN8URu81h
 
